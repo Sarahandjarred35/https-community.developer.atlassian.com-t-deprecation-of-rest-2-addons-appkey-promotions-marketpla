@@ -1,0 +1,1 @@
+# https-community.developer.atlassian.com-t-deprecation-of-rest-2-addons-appkey-promotions-marketpla
